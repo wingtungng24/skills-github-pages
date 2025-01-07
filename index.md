@@ -1,7 +1,4 @@
 ---
 title: Wing Tung Ng
 ---
-Academic Documentary
-First Academy Education
-WomenX Biotech
-NA Sing
+I dont know what i should do
